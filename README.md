@@ -4,3 +4,5 @@
 * [윤효정](https://github.com/hj213)
 * [이희병](https://github.com/22-bottle)
 * [전이준](https://github.com/Yijun-Jeon)
+
+(https://i.imgur.com/NF6kA5G.png)
